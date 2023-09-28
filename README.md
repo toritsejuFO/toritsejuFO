@@ -2,4 +2,4 @@
 
 Hi there 👋
 
-Well, if you're here, it's probably not by mistake, I hope you enjoy your exploration of my repos 🚀
+Well, if you're here, it's probably not by mistake, do enjoy your exploration 🚀
